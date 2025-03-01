@@ -17,6 +17,13 @@ Star Bag 250 g
   - 35 RON
 
 
+    # Puteți să ne contactați prin:
+    ### Telefon: 0722 435 787 - pentru informații rapide sau comenzi.
+    ### Rețele sociale: _star.coffeee_ - urmărește-ne pentru oferte speciale, promoții și pentru a rămâne la curent cu noutățile din lumea ''Star Coffee''.
+    ### Locație: Sos.Viilor,nr.38,Sec.5,București
+    ### Program:L-V :  07:30 - 19:00      S-D : 08:30 - 17:00
+    [https://g.co/kgs/kAitRqe](https://g.co/kgs/kAitRqe)
+
 
 
 
