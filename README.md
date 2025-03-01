@@ -8,7 +8,7 @@ Pahar cu capac 330 ml
 Cană Star Coffee 350 ml
   - 20 RON
 
-#### ![WhatsApp Image 2025-03-01 at 10 45 21_38e42c54](https://github.com/user-attachments/assets/b9020a59-47d6-4e7f-bb00-c32fdc754def)
+#### ![WhatsApp Image 2025-03-01 at 11 12 30_44db307c](https://github.com/user-attachments/assets/a9a26c27-c803-4196-84e0-db1a39527ae7)
 Star Termos 600 ml
   - 50 RON
 
